@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **Kabirdas8720@gmail.com**
 
-- 📄 Know about my experiences [Ressume](https://drive.google.com/file/d/1-CKUSJ2siI_CKYiJeN4Qq7grfhEvao1r/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1-CKUSJ2siI_CKYiJeN4Qq7grfhEvao1r/view?usp=sharing)
 
 - ⚡ Fun fact **i am funny 	:innocent:**
 
